@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Joliesong a.k.a. Heather
-- 👀 Catch me building community through hiking, wilding out at Zumba, or enjoying time with my family
+- 👀 Catch me building community through hiking, wilding out at Zumba, or enjoying family time
 - 🌱 Learning all the things IT while I finish up my BSIT
 - 💞️ Excited to work with others on projects 
 - 📫 Reach me through my issues
